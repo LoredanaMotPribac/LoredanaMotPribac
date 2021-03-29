@@ -4,6 +4,6 @@ I’m a data analyst with a background in banking, research and teaching. I want
 - 🌱 I’m currently learning more about how to transfer skills from my background in banking, research and teaching to data analyst.
 - 👯 I’m looking to collaborate on data analyst projects.
 - 💬 Ask me about research data.
-- 📫 How to reach me: pribacloredana@gmail.com or 07523  979 470
+- 📫 How to reach me: pribacloredana@gmail.com, 07523  979 470 or https://pribacloredana.wixsite.com/mysite
 - 😄 Pronouns: Lore
 - ⚡ Fun fact: I am a red-haired girl from Transylvania who moved to the land of the redheads. 
